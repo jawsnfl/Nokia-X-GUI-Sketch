@@ -8,7 +8,7 @@ The file nor its elements are to be repurposed as your own. It can’t be broken
 
 If you like it and use it, tweet about it.
 
-Follow me [@maxart](https://twitter.com/maxart).
+Follow me [@maxart](https://twitter.com/maxart), [dribbble.com/maxart](http://dribbble.com/maxart).
 
 ---
 
